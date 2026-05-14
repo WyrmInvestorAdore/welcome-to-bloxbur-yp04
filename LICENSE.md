@@ -1,4 +1,4 @@
-#  
+#  secure Scripts for welcome to bloxburg offers the most advanced welcome to bloxburg Script, with auto-upgrade and fly. Perfect for dominating any
 
 
 
